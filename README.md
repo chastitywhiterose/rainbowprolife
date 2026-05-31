@@ -25,9 +25,9 @@ And the board was generally in agreement with me that we need to organize and ma
 I have started this collection with some of my best posts that I wrote over the years. Other people are welcome to contribute things they have written related to Pro-Life activism, LGBTQIA+, or both.
 
 
-<https://chastitywhiterose.github.io/rainbowprolife/posts/Chastity-Speech-March-for-Life-2026.html>
+[Chastity's Speech at March for Life 2026](https://chastitywhiterose.github.io/rainbowprolife/posts/Chastity-Speech-March-for-Life-2026.html)
 
-<https://chastitywhiterose.github.io/rainbowprolife/posts/Conceived%20this%20way.html>
+[Conceived this way](https://chastitywhiterose.github.io/rainbowprolife/posts/Conceived%20this%20way.html)
 
-<https://chastitywhiterose.github.io/rainbowprolife/posts/SPL-Abortion-Prevention-Men.html>
+[Abortion prevention: don’t forget about the men](https://chastitywhiterose.github.io/rainbowprolife/posts/SPL-Abortion-Prevention-Men.html)
 
