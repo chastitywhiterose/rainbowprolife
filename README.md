@@ -2,7 +2,7 @@
 
 ![logo](./images/logo.png)
 
-A collection of historical importance for the Rainbow Pro-Life Alliance. It is an anti-abortion group I am a member of, and I volunteer my skills as a writer.
+A collection of historical importance for the Rainbow Pro-Life Alliance. It is an anti-abortion group that I am a member of. I volunteer my skills as a writer and technology nerd.
 
 # Purpose
 
