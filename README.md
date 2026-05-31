@@ -23,3 +23,11 @@ At a board meeting on 5-28-2026, I brought up the idea for us to publish a paper
 And the board was generally in agreement with me that we need to organize and make available our history. We will discuss more about working together on this. Still, I consider myself the catalyst of this because I have the computer skills and know a lot about how to convert text into PDFs and EPUBs for publishing in various ways.
 
 I have started this collection with some of my best posts that I wrote over the years. Other people are welcome to contribute things they have written related to Pro-Life activism, LGBTQIA+, or both.
+
+
+<https://chastitywhiterose.github.io/rainbowprolife/posts/Chastity-Speech-March-for-Life-2026.html>
+
+<https://chastitywhiterose.github.io/rainbowprolife/posts/Conceived%20this%20way.html>
+
+<https://chastitywhiterose.github.io/rainbowprolife/posts/SPL-Abortion-Prevention-Men.html>
+
