@@ -1,0 +1,18 @@
+# Chastity's Speech at March for Life 2026
+
+My name is Chastity, and I am a transgender woman here to represent the Rainbow Pro-Life Alliance as well as the Transgender people specifically. I am the last person you might expect to see at a Pro-Life event because I am not aligned with a specific church, political party, or anything else that you have been told is the foundation of defending the unborn. Still, I do follow the Golden Rule as taught by Jesus and other great teachers.
+
+As a former fetus, I speak for those who have not lived to speak for themselves. I speak for the unborn humans who were declared unworthy of life, liberty, and the pursuit of happiness. Each one of them was a human who would have been capable of doing many of the things I enjoy. I am not more or less worthy of life than those who were aborted for whatever reason invented by doctors, politicians, their parents, and whoever else convinced them that murder was the only solution to a child they saw as a problem.
+
+As an Asexual and Transgender person, I speak for many of the LGBTQIA+ people who were murdered or driven to suicide because they looked different, loved a person of the wrong gender, or were born with a soul or body that could not conform to the binary that society arbitrarily decided was required to earn family, friends, employment, housing, or medical care.
+
+For me personally, being Pro-Life is about protecting the lives of the most innocent souls who have done nothing wrong but have been killed and robbed of their life and future choices. The Pro-Choice philosophy
+does not respect their choices to live and become what they were conceived to be. Every single choice we make depends on being allowed to live long enough to know what these choices are, and also to understand that no choice would be possible unless our parents had chosen to let us live.
+
+The Pro-Choice philosophy does not ultimately care about our bodily autonomy because this ideology says it would have been completely okay for every single one of us to have been murdered in the womb. The only choice offered by those claiming to be Pro-Choice is Abortion.
+
+I also ask you to forgive many of the other Rainbow people who have been deceived into the Pro-Choice ideology, which promised to respect their bodily autonomy but failed to deliver on these promises, and only gave them death as a solution. Every one of the gay, transgender, and intersex people can be targeted for termination by detecting "genetic defects" which make us different, even at the DNA level. Discrimination against my people is just as common both before and after we are born. 
+
+If the mainstream Cisgender Heterosexual Pro-Life people and the LGBTQIA+ community worked together and remembered who the real enemy is, it would lead to a much safer world for all of us. There are many misunderstandings based on false information. People like me and the others in Rainbow Pro-Life Alliance are a bridge to help the two sides see that we are not enemies by nature, but because we have been given the wrong messages by those who profit from confusing us to win elections or make money from killing us.
+
+And despite what you may have heard, the Pro-Life movement is the greatest ally that the LGBTQIA+ community can have, because you are fighting for our lives, even if you don't truly know who or what we are. You may not know much about my community, nor do you have to agree with me about everything. But I am here today to tell you that as long as we agree that it is wrong to kill the most innocent people before they have a chance to live their lives, I think we can come to a better understanding over time and bridge the divide between the Rainbow people and the rest of the Pro-Life movement.
